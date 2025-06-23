@@ -11,7 +11,8 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://pi1-01.pages.dev/
+点击访问：<a href="https://pi1-01.pages.dev/">50度灰</a>
+
 点击访问：<a href="https://pi68.pages.dev/">黑料社瓜网黑料</a>
 
 点击访问：<a href="https://pi30-02.pages.dev/">明星爆料一网打尽</a>
